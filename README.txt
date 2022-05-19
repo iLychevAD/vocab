@@ -765,4 +765,4 @@ dissent
 absolve
 to walk back (take the words back?)
 incarnation
-
+responsibility lies with you
