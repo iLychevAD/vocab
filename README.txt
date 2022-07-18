@@ -768,4 +768,4 @@ incarnation
 responsibility lies with you
 trial and error
 payoff
-
+still holds up == still relevant
