@@ -779,6 +779,8 @@ https://russian.stackexchange.com/questions/17276/the-origin-of-%D0%BD%D0%B0-%D0
 shoelaces coming undone
 so be it
 acumen
+permanent state of suspense
+
 
 
 
