@@ -780,6 +780,7 @@ shoelaces coming undone
 so be it
 acumen
 permanent state of suspense
+the first <thing> that comes across
 
 
 
